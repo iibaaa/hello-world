@@ -1,5 +1,7 @@
 Hi There !
+
 I'm İdris Batuhan Aydın
+
 coder - engineer - graphic designer
 
 
